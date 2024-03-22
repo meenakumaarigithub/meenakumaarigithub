@@ -18,3 +18,17 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=meenakumaarigithub&icon=0&color=0)](https://visitcount.itsvg.in)
 
+### 🏆 Achievements
+- Achieved Class First with GPA of 8.64 during NOV/DEC 2022 Anna University Examinations.
+- Finalist in the Student Startup Ideathon contest in Kumari Startup Summit 2023.
+- Secured many prizes in school days.
+- Won Overall Championship Trophy in National Level Technical Symposium Organized by St. Xavier’s Catholic College of Engineering.
+
+### 💫 Roles and Responsibilities
+- Project Team Leader: Led a team of 4 members in Smart India Hackathon.
+- Created challenging problem statements for college coding contests.
+- Class Representative, organize meeting & solve issues.
+- Event Coordinator, National Level Technical Symposium.
+
+🌟 **Passionate about making a difference through technology and eager to explore new opportunities!** 🌟
+
